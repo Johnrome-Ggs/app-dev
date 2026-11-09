@@ -35,7 +35,7 @@ He searches for his family and joins other survivors as they face dangerous walk
 > "We are the walking dead."
 
 ### My Rating
-**10/10** ⭐
+**10/10** 
 
 ---
 
